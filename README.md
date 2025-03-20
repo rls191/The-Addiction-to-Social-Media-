@@ -4,9 +4,14 @@ https://youtu.be/6vBNlvzh4QU
  
 # Summary: 
 
-This video essay analyzes the addiction to social media and how it consumes us. I want to start the video essay by defining social media and editing it in a fun way. I want to then dramatically change the mood of the piece by changing the focus to a negative aspect of social media, addiction. I will use audio and video files from online to tell the story and message appropriately. I want to make this more vulnerable by telling my own story and adding authenticity to the piece. I have yet to add this in but it will be part of the final project.
+This video essay defines and dissects the addiction to social media and doomscrolling. I chose this subject matter because it is important and personal to me. I am addicted to my phone and am trying to be much better about it. In the video, I tell my story and explain my problems and issues with social media. I have a hard time putting down my phone when picking it up. When I am stuck on my phone, I need to find distractions or make plans to guarantee that I won’t be on my phone. I think that can be relatable to a lot of people my age. This essay points out the harmful effects of doomscrolling and social media addiction. 
+
+I believe that my use of video, image, and audio sources dramatically helps the essay make the point I want to make. Using music and videos that match the depressing words coming out of my mouth relays to the audience that this is a deeply emotional problem. Using video is a very helpful resource to use when getting your point across. You can directly force the audience to see what you are saying in one way or another. I think that my use of real-world examples like the COVID-19 pandemic and the TikTok ban shows real concern over this seemingly minor issue. I also dig a little deeper into my own story and what my social media presence has looked like. I included old videos to show the reality that my generation is growing up online. But other than that it is a cute and funny addition to an overall negative topic, bringing some positivity and happiness back. 
+
+My peer workshops were very helpful. I am a very indecisive person, so when I get stuck on something, it is hard for me to make decisions. For example, I wanted this very specific clip somewhere in the video, but I couldn’t find anything like that. So, my group members recommended using something completely different, and it worked! They also gave me some minor changes in the last workshop for little video edits that would add to my overall project. 
+
  
-# Sources:
+# Credits:
 
 ## Audio Assets: 
 
@@ -58,7 +63,7 @@ This video essay analyzes the addiction to social media and how it consumes us. 
 
 * https://en.wikipedia.org/wiki/Donald_Trump–TikTok_controversy 
 
-## Credits: 
+## Sources: 
 
 * https://www.theguardian.com/global/2021/aug/22/how-digital-media-turned-us-all-into-dopamine-addicts-and-what-we-can-do-to-break-the-cycle 
 
